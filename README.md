@@ -1,0 +1,1 @@
+# Descargas\n\nReleases públicos de las apps de Soluciones Carlito Buy: [Carlito Pedidos Desktop](https://solucionescarlitobuy.com/descargas) (Windows/Mac) y APK de Carlito Envíos (mensajeros, Android).
